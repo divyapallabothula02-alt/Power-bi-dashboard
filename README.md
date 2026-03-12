@@ -76,5 +76,6 @@ ________________________________________
 
 Divya Pallabotula
 
-Aspiring Data Analyst Power BI | Data Visualization | Data Analytics | Data Modeling
+Aspiring Aspiring Financial Data Analyst, Data Analyst roles.
+Power BI | Data Visualization | Data Analytics | Data Modeling
 
